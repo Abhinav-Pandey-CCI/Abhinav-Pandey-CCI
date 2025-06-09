@@ -10,8 +10,8 @@
 🎥 I also share tutorials and tech content on my YouTube channel (link below).
 
 📫 Reach me: help.codonyx@gmail.com  
-🌐 YouTube: https://www.youtube.com/@Codonyx  
-🌐 Instagram : https://www.instagram.com/officialcodonyx/
+🌐 YouTube: https://www.youtube.com/decodingblaze
+🌐 Instagram : https://www.instagram.com/decodingblaze/
 
 📁 Check out my repositories below 👇
 
